@@ -18,4 +18,4 @@
 此外，我们在内容排版与SEO结构上也进行了深度优化，合理布局“日本AV免费”、“高清无码”、“无码AV在线观看”、“女优推荐”等关键词，提高整站的搜索引擎友好度，帮助更多用户在第一时间通过搜索引擎找到我们。本站秉持公益精神，仅提供在线播放服务，不储存任何片源，请在法律允许的范围内理性观看。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd64069/11136 ）</span>
